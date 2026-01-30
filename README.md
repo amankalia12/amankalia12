@@ -33,11 +33,7 @@ I am actively seeking opportunities to contribute to:
 
 ### 📬 How to Reach Me
 
-| Platform | Link |
-| :--- | :--- |
-| **Email** | amankalia515@gmail.com |
-| **LinkedIn** | [Connect with me on LinkedIn](https://linkedin.com/in/amankalia) |
-| **Portfolio** | [Visit my Portfolio](https://amankalia.dev) |
+
 
 ---
 
