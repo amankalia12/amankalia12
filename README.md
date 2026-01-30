@@ -33,7 +33,7 @@ I am actively seeking opportunities to contribute to:
 
 ### 📬 How to Reach Me
 
-
+| **Email** | amankalia515@gmail.com |
 
 ---
 
